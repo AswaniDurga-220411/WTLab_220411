@@ -1,1 +1,1 @@
-priya i love you
+web technology
